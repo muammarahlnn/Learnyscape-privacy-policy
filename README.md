@@ -1,1 +1,1 @@
-# Learnyscape-privary-policy
+# Learnyscape-privacy-policy
